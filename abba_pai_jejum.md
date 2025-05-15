@@ -207,4 +207,4 @@ Durante o jejum, tenha um caderno ou bloco de anotações para:
 
 * * *
 
-Se quiser, posso transformar essa tabela em um PDF o
+
