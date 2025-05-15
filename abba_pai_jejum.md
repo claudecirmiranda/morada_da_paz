@@ -147,9 +147,9 @@ Durante o jejum, tenha um caderno ou bloco de anotações para:
 
 * * *
 
-### 📋 **Aniversariantes da Célula ABBA PAI**
+### 📋 **Membros da Célula ABBA PAI**
 
-| Nome | Data | Função na Célula |
+| Nome | Aniversário | Função na Célula |
 | --- | --- | --- |
 | **Janeiro** |  |  |
 | Antônio | 07/01 | Líder / Anfitrião |
