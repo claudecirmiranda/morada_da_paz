@@ -134,4 +134,77 @@ O objetivo final do jejum não é apenas bênçãos internas, mas **ser transfor
     
 *   Que Deus levante novos líderes, discipuladores e evangelistas.
 
+* * *
 
+### Sugestão:
+
+Durante o jejum, tenha um caderno ou bloco de anotações para:
+*   Escrever nomes de pessoas pelas quais você está orando.
+    
+*   Anotar respostas de oração ou percepções do Espírito.
+    
+*   Registrar promessas ou textos bíblicos que surgirem.
+
+* * *
+
+### 📋 **Aniversariantes da Célula ABBA PAI**
+
+| Nome | Data | Função na Célula |
+| --- | --- | --- |
+| **Janeiro** |  |  |
+| Antônio | 07/01 | Líder / Anfitrião |
+| **Fevereiro** |  |  |
+| Maria Clara | 16/02 |  |
+| Aline | 27/02 |  |
+| Alessandra | 27/02 |  |
+| Elizabete | 28/02 |  |
+| **Março** |  |  |
+| Maria Eduarda | 06/03 | Filha de Bete e Daniel |
+| Pâmela | 20/03 | Líder / Anfitriã |
+| Priscila | 22/03 |  |
+| **Abril** |  |  |
+| Paulo César | 05/04 | Núcleo |
+| André | 08/04 |  |
+| Denis | 09/04 | Núcleo |
+| Aline Queiroz | 27/04 |  |
+| **Maio** |  |  |
+| Daniel | 05/05 |  |
+| Maria Beatriz | 14/05 |  |
+| Renata | 25/05 |  |
+| Davi | 27/05 |  |
+| **Junho** |  |  |
+| Nilson | 05/06 | Núcleo |
+| Alice | 09/06 |  |
+| Enzo | 16/06 |  |
+| Vicente | 16/06 |  |
+| Takim | 18/06 |  |
+| Claudecir | 29/06 |  |
+| **Julho** |  |  |
+| Sheila | 04/07 |  |
+| Raphael | 08/07 |  |
+| Aline | 25/07 |  |
+| Benjamim | 27/07 |  |
+| **Agosto** |  |  |
+| Erica | 12/08 | Núcleo |
+| Gabriel | 30/08 |  |
+| **Setembro** |  |  |
+| Bruno | 01/09 |  |
+| João | 05/09 |  |
+| **Outubro** |  |  |
+| Ericksom | 02/10 |  |
+| Heitor | 20/10 |  |
+| Adriana | 20/10 | Núcleo |
+| Luiza | 29/10 |  |
+| **Novembro** |  |  |
+| Maria Eduarda | 05/11 |  |
+| Josy | 12/11 | Núcleo |
+| Tamiris | 20/11 |  |
+| Alana | 29/11 |  |
+| **Dezembro** |  |  |
+| Mércia | 07/12 |  |
+| Pedro Lucca | 11/12 |  |
+| Bernard | 31/12 |  |
+
+* * *
+
+Se quiser, posso transformar essa tabela em um PDF o
